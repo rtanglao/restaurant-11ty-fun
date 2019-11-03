@@ -34,3 +34,6 @@ even better they even have vegan and vegetarian food!
 1. Savio Volpe, Fraserhood, Vancouver - Italian splurge is worth it! and it's family style! our favourite dish is bagna cauda!
 1. Hong Kong BBQ Master, Richmond - The best Hong Kong style BBQ I have ever tasted. Cheap, cheerful and not fancy! It's walking distance from the Canada line!
 So no need to endure driving :-)
+1. Po Kong, Kingsway, Vancouver - delicous Chinese buddhist i.e. vegetarian food
+1. House of Dosas, Kingsway, Vancouver - delicious vegetarian food like their Masala Dosa which I highly recommend. They also
+have meat :-)
