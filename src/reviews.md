@@ -29,6 +29,8 @@ Not in order
 1. New Town Bakery, Chinatown, Vancouver - old school greasy Cantonese but I love it! B Chaan forever!
 1. The Boss, Chinatown, Vancouver - a step up from New Town, Pepper beef crispy noodles forever!
 1. Fat Mao, Chinatown, Vancouver - non "authentic" :-) but delicious mapo tofu forever!
-1. Kulinarya, The Drive, Vancouver - sinigang, kare-kare, adobo, the food my childhood it's all here and it's delicious and 
+1. Kulinarya, The Drive, Vancouver - sinigang, kare-kare, adobo, the food of my childhood it's all here and it's delicious and 
 even better they even have vegan and vegetarian food!
 1. Savio Volpe, Fraserhood, Vancouver - Italian splurge is worth it! and it's family style! our favourite dish is bagna cauda!
+1. Hong Kong BBQ Master, Richmond - The best Hong Kong style BBQ I have ever tasted. Cheap, cheerful and not fancy! It's walking distance from the Canada line!
+So no need to endure driving :-)
