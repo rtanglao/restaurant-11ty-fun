@@ -1,7 +1,3 @@
----
-title: "Roland's Restaurant Reviews 1 pager"
----
-
 # Restaurants I've visited recently
 
 - I'm not a food critic and I pay with my own \$.
@@ -14,3 +10,25 @@ title: "Roland's Restaurant Reviews 1 pager"
    - Vegetarian Friendliness level: medium
 1. Friday November 1, 2019 - [Fat Mao, Chinatown, Vancouver](http://www.fatmaonoodles.com/) - their noodle soups are great but as always loved the mapo tofu; who needs "authentic" :-) ?
    - Vegetarian Friendliness level : not sure but I'd guess low?!? My guess is that they'd accomodate you since they are super friendly.
+
+# Restaurants I'd like to try
+
+Not in order.
+
+# Restaurants I've heard are delicious from people I trust
+
+Not in order
+
+1. House Special in Yaletown (the parent restaurant to Do Chay)
+
+# Highly Recommended
+
+Not in order
+
+1. Haru Korean Kitchen, Gastown, Vancouver - Kimchi stew forever
+1. New Town Bakery, Chinatown, Vancouver - old school greasy Cantonese but I love it! B Chaan forever!
+1. The Boss, Chinatown, Vancouver - a step up from New Town, Pepper beef crispy noodles forever!
+1. Fat Mao, Chinatown, Vancouver - non "authentic" :-) but delicious mapo tofu forever!
+1. Kulibarya, The Drive, Vancouver - sinigang, kare-kare, adobo, the food my childhood it's all here and it's delicious and 
+even better they even have vegan and vegetarian food!
+1. Savio Volpe, Fraserhood, Vancouver - Italian splurge is worth it! and it's family style! our favourite dish is bagna cauda!
