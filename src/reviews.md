@@ -13,27 +13,38 @@
 
 # Restaurants I'd like to try
 
-Not in order.
+Not in order:
 
 # Restaurants I've heard are delicious from people I trust
 
-Not in order
+Not in order:
 
 1. House Special in Yaletown (the parent restaurant to Do Chay)
 
 # Highly Recommended
 
-Not in order
+Not in order:
 
 1. Haru Korean Kitchen, Gastown, Vancouver - Kimchi stew forever
 1. New Town Bakery, Chinatown, Vancouver - old school greasy Cantonese but I love it! B Chaan forever!
 1. The Boss, Chinatown, Vancouver - a step up from New Town, Pepper beef crispy noodles forever!
 1. Fat Mao, Chinatown, Vancouver - non "authentic" :-) but delicious mapo tofu forever!
-1. Kulinarya, The Drive, Vancouver - sinigang, kare-kare, adobo, the food of my childhood it's all here and it's delicious and 
-even better they even have vegan and vegetarian food!
-1. Savio Volpe, Fraserhood, Vancouver - Italian splurge is worth it! and it's family style! our favourite dish is bagna cauda!
+1. Kulinarya, The Drive, Vancouver - sinigang, kare-kare, adobo, the food of my childhood it's all here and it's delicious and
+   even better they even have vegan and vegetarian food!
+1. Savio Volpe, Fraserhood, East Vancouver - Italian splurge is worth it! and it's family style! our favourite dish is bagna cauda!
 1. Hong Kong BBQ Master, Richmond - The best Hong Kong style BBQ I have ever tasted. Cheap, cheerful and not fancy! It's walking distance from the Canada line!
-So no need to endure driving :-)
-1. Po Kong, Kingsway, Vancouver - delicous Chinese buddhist i.e. vegetarian food
-1. House of Dosas, Kingsway, Vancouver - delicious vegetarian food like their Masala Dosa which I highly recommend. They also
-have meat :-)
+   So no need to endure driving :-)
+1. Po Kong, Kingsway, East Vancouver - delicous Chinese buddhist i.e. vegetarian food
+1. House of Dosas, Kingsway, East Vancouver - delicious vegetarian food like their Masala Dosa which I highly recommend. They also
+   have meat :-)
+1. Meat & Bread, Gastown, Vancouver - porcetta forever :-) NOT vegetarian friendly
+1. Pizzeria Barbarella, Fraserhood, East Vancouver - everything is great, veggie friendly and of course banoffee pie!!!
+1. Livia, The Drive, Vancouver - Carbonara for breakfast! And many other great things!
+1. [Anh and Chi](https://www.anhandchi.com/), Main Street, Vancouver - Chicken pho!!!! Also amazingly vegetarian friendly!
+
+# Gone but not forgotten
+
+Not in order:
+
+1. Surat Sweet, Kitsilano, Vancouver - the best gujerati
+1. Rhinofish, Chinatown, Vancouver - the best Taiwanese beef noodle soup ever :-)
