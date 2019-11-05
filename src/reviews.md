@@ -20,7 +20,6 @@ Not in order:
 Not in order:
 
 1. Royal Dinette, Downtown, Vancouver
-
 1. House Special in Yaletown (the parent restaurant to Do Chay)
 
 # Highly Recommended
