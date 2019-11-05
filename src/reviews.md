@@ -19,6 +19,8 @@ Not in order:
 
 Not in order:
 
+1. Royal Dinette, Downtown, Vancouver
+
 1. House Special in Yaletown (the parent restaurant to Do Chay)
 
 # Highly Recommended
@@ -40,7 +42,11 @@ Not in order:
 1. Meat & Bread, Gastown, Vancouver - porcetta forever :-) NOT vegetarian friendly
 1. Pizzeria Barbarella, Fraserhood, East Vancouver - everything is great, veggie friendly and of course banoffee pie!!!
 1. Livia, The Drive, Vancouver - Carbonara for breakfast! And many other great things!
-1. [Anh and Chi](https://www.anhandchi.com/), Main Street, Vancouver - Chicken pho!!!! Also amazingly vegetarian friendly!
+1. [Anh and Chi](https://www.anhandchi.com/), Main Street, Vancouver -
+   Chicken pho!!!! Also amazingly vegetarian friendly!
+1. Ubuntu Canteen, Fraserhood, Vancouver - Sunday suppers highly recommended
+1. Batard, Frasherhood, Vancouver - Our fav place for a snack or light lunch on the
+   weekend
 
 # Gone but not forgotten
 
