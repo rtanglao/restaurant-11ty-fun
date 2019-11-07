@@ -44,7 +44,7 @@ Not in order:
 1. [Anh and Chi](https://www.anhandchi.com/), Main Street, Vancouver -
    Chicken pho!!!! Also amazingly vegetarian friendly!
 1. Ubuntu Canteen, Fraserhood, Vancouver - Sunday suppers highly recommended
-1. Batard, Frasherhood, Vancouver - Our fav place for a snack or light lunch on the
+1. [Bâtard Bakery](http://batardbakery.com/), Frasherhood, Vancouver - Our fav place for a snack or light lunch on the
    weekend
 
 # Gone but not forgotten
@@ -53,3 +53,4 @@ Not in order:
 
 1. Surat Sweet, Kitsilano, Vancouver - the best gujerati
 1. Rhinofish, Chinatown, Vancouver - the best Taiwanese beef noodle soup ever :-)
+1. name forgotten :-) Caribbean restaurant on 4th, Kitsilano, Vancouver - Best Trinidadian doubles and peanut drink
