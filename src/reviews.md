@@ -55,5 +55,5 @@ Not in order:
 1. Rhinofish, Chinatown, Vancouver - the best Taiwanese beef noodle soup ever :-)
 1. name forgotten :-) Caribbean restaurant on 4th, Kitsilano, Vancouver - Best Trinidadian doubles and peanut drink
 1. Teatriz Cafe, Unit 115, 8231 Cambie Road, Richmond, 279 8896 - The beloved "green place"
-is the first Hong Kong style  where I had almond tea and the glory of "B Chaan".
-Ah the good 'ole Nortel days :-)
+   is the first Hong Kong style restaurant where I had almond tea and the glory of "B Chaan".
+   Ah the good 'ole Nortel days :-)
