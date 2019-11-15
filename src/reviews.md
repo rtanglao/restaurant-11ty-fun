@@ -1,3 +1,7 @@
+---
+title: Roland's Restaurant Reviews
+---
+
 # Restaurants I've visited recently
 
 - I'm not a food critic and I pay with my own \$.
@@ -10,6 +14,16 @@
    - Vegetarian Friendliness level: medium
 1. Friday November 1, 2019 - [Fat Mao, Chinatown, Vancouver](http://www.fatmaonoodles.com/) - their noodle soups are great but as always loved the mapo tofu; who needs "authentic" :-) ?
    - Vegetarian Friendliness level : not sure but I'd guess low?!? My guess is that they'd accomodate you since they are super friendly.
+1. Thursday November 7, 2019 - [Chinatown BBQ, Chinatown, Vancouver](https://chinatownbbq.com/) - Hong Kong (Cantonese) BBQ.
+   Not as great as HK BBQ Master but it's in Chinatown and special in it's
+   own way. Pork all the things :-)
+   - Vegetarian Friendliness level: low (they have one or two delicious veggie side dishes but not veggie mains)
+1. Monday November 11 2019 - [Ken's Kitchen, Kingsway, East Vancouver](https://kenskitchenvancouver.com/) - Honk Kong aka Cantonese food.
+   Great lunch specials!Great iced Hong Kong milk tea with sweetened condensed milk!
+   Great suppers ("free" chicken when your order 3 or 4 dishes, all
+   translated to English unlike many places)
+   - Vegetarian Friendliess level: low (lots of veggie side dishes)
+1. Thursday November 14, 2019 - Haru Korean Kitchen - Kimchi stew forever (extra kimchi, no salad #ymmv )!!!!!!!
 
 # Restaurants I'd like to try
 
@@ -26,7 +40,7 @@ Not in order:
 
 Not in order:
 
-1. Haru Korean Kitchen, Gastown, Vancouver - Kimchi stew forever
+1. Haru Korean Kitchen, Gastown, Vancouver - Kimchi stew forever (they do have what looks like decent vegetarian!)
 1. New Town Bakery, Chinatown, Vancouver - old school greasy Cantonese but I love it! B Chaan forever!
 1. The Boss, Chinatown, Vancouver - a step up from New Town, Pepper beef crispy noodles forever!
 1. Fat Mao, Chinatown, Vancouver - non "authentic" :-) but delicious mapo tofu forever!
@@ -44,8 +58,10 @@ Not in order:
 1. [Anh and Chi](https://www.anhandchi.com/), Main Street, Vancouver -
    Chicken pho!!!! Also amazingly vegetarian friendly!
 1. Ubuntu Canteen, Fraserhood, Vancouver - Sunday suppers highly recommended
-1. [Bâtard Bakery](http://batardbakery.com/), Frasherhood, Vancouver - Our fav place for a snack or light lunch on the
+1. [Bâtard Bakery](http://batardbakery.com/), Fraserhood, Vancouver - Our fav place for a snack or light lunch on the
    weekend
+1. [Kissa Tanto, Chinatown Vancouver](http://www.kissatanto.com/) - super splurge, great cocktails and japanese and italian mixed together!
+1. Ken's Kitchen, Kingsway, East Vancouver
 
 # Gone but not forgotten
 

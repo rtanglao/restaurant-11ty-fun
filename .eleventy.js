@@ -3,6 +3,7 @@
 module.exports = function(eleventyConfig) {
   
   // eleventyConfig.addFilter( "myFilter", function() {});
+  markdownTemplateEngine: "njk"
  
   return {
     dir: {
