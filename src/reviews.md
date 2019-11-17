@@ -24,6 +24,8 @@ title: Roland's Restaurant Reviews
    translated to English unlike many places)
    - Vegetarian Friendliess level: low (lots of veggie side dishes)
 1. Thursday November 14, 2019 - Haru Korean Kitchen - Kimchi stew forever (extra kimchi, no salad #ymmv )!!!!!!!
+1. Saturday November 16, 2019 - Western Lake - Dimsum was great as usual! Matcha jello-like dessert was amazing.
+   - Vegetarian Friendliness level: low
 
 # Restaurants I'd like to try
 
@@ -62,6 +64,7 @@ Not in order:
    weekend
 1. [Kissa Tanto, Chinatown Vancouver](http://www.kissatanto.com/) - super splurge, great cocktails and japanese and italian mixed together!
 1. Ken's Kitchen, Kingsway, East Vancouver
+1. [Western Lake](http://westernlake.ca/english/), Victoria, East Vancouver - dimsum!
 
 # Gone but not forgotten
 
