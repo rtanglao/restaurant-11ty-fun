@@ -18,7 +18,7 @@ title: Roland's Restaurant Reviews
    Not as great as HK BBQ Master but it's in Chinatown and special in it's
    own way. Pork all the things :-)
    - Vegetarian Friendliness level: low (they have one or two delicious veggie side dishes but not veggie mains)
-1. Monday November 11 2019 - [Ken's Kitchen, Kingsway, East Vancouver](https://kenskitchenvancouver.com/) - Honk Kong aka Cantonese food.
+1. Monday November 11, 2019 - [Ken's Kitchen, Kingsway, East Vancouver](https://kenskitchenvancouver.com/) - Honk Kong aka Cantonese food.
    Great lunch specials!Great iced Hong Kong milk tea with sweetened condensed milk!
    Great suppers ("free" chicken when your order 3 or 4 dishes, all
    translated to English unlike many places)
@@ -65,6 +65,12 @@ Not in order:
 1. [Kissa Tanto, Chinatown Vancouver](http://www.kissatanto.com/) - super splurge, great cocktails and japanese and italian mixed together!
 1. Ken's Kitchen, Kingsway, East Vancouver
 1. [Western Lake](http://westernlake.ca/english/), Victoria, East Vancouver - dimsum!
+1. [Manpuku Bento, Chinatown, Vancouver](https://manpukubento.com/) - Delicious Japanese Takeout; you can eat eat there but it's a bit cramped and not really
+designed for that; their daily specials are highly recommended. To minimize  waste,
+I'd suggest bringing 3 bowls (1 for rice or noodles, 
+1 for the stuff that goes on the rice or noodles and 1 for miso soup)
+and chopsticks.
+Not vegetarian friendly.
 
 # Gone but not forgotten
 
