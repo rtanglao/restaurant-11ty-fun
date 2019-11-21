@@ -66,11 +66,13 @@ Not in order:
 1. Ken's Kitchen, Kingsway, East Vancouver
 1. [Western Lake](http://westernlake.ca/english/), Victoria, East Vancouver - dimsum!
 1. [Manpuku Bento, Chinatown, Vancouver](https://manpukubento.com/) - Delicious Japanese Takeout; you can eat eat there but it's a bit cramped and not really
-designed for that; their daily specials are highly recommended. To minimize  waste,
-I'd suggest bringing 3 bowls (1 for rice or noodles, 
-1 for the stuff that goes on the rice or noodles and 1 for miso soup)
-and chopsticks.
-Not vegetarian friendly.
+   designed for that; their daily specials are highly recommended. To minimize waste,
+   I'd suggest bringing 3 bowls (1 for rice or noodles,
+   1 for the stuff that goes on the rice or noodles and 1 for miso soup)
+   and chopsticks.
+   Not vegetarian friendly.
+1. [La Pache Pizza, The Drive, Vancouver](https://la-pache-pizza-online-ordering.brygid.online/zgrid/themes/13349/intro/index.jsp) - 
+great by the slice also great whole pizza deal: 1/2 and 1/2. Vegetarian friendly!
 
 # Gone but not forgotten
 
