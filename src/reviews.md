@@ -26,6 +26,8 @@ title: Roland's Restaurant Reviews
 1. Thursday November 14, 2019 - Haru Korean Kitchen - Kimchi stew forever (extra kimchi, no salad #ymmv )!!!!!!!
 1. Saturday November 16, 2019 - Western Lake - Dimsum was great as usual! Matcha jello-like dessert was amazing.
    - Vegetarian Friendliness level: low
+1. Saturday November 16, 2019 - [Backcountry Brewing, Squamish](https://www.backcountrybrewing.com/) - 
+The 'Forager' was a delicious mushroom pizza. Great sour beer too!
 
 # Restaurants I'd like to try
 
