@@ -28,6 +28,10 @@ title: Roland's Restaurant Reviews
    - Vegetarian Friendliness level: low
 1. Saturday November 16, 2019 - [Backcountry Brewing, Squamish](https://www.backcountrybrewing.com/) - 
 The 'Forager' was a delicious mushroom pizza. Great sour beer too!
+1. Thursday November 28, 2019 - Fat Mao - monthly mapo tofu run :-) Delicious as always and highly recommended
+1. Friday November 29, 2019 - [Sprezzatura, Kingsway, Vancouver](https://sprezzatura.ca/)  - great sable fish
+1. Saturday November 30, 2019 - [Dinesty on Gilbert, Richmond](http://dinesty.ca/our-locations/richmond-gilbert/) - great XLB (fabulous dough), shredded pork 
+was spicy and great; unusual mushroom and bamboo shoot dish was sweet and delicious!
 
 # Restaurants I'd like to try
 
