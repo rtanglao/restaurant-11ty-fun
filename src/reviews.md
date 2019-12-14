@@ -6,6 +6,7 @@ title: Roland's Restaurant Reviews
 
 - I'm not a food critic and I pay with my own \$.
 - I prefer smaller "ethnic" restaurants and I love family style dining #ymmv :-)
+- I don't care about "portion size" :-) #ymmv But I'd rather have three exquisite bites than an overflowing plate of "premium mediocre" :-)
 - For more pontifications :-) see [rolandtanglao.com](http://rolandtanglao.com/) and
   Vancouver's first :-) food blog, [vaneats.com](http://vaneats.com/) ; hosted by the fabulous
   [Dale McGladdery](https://www.group42.ca/)
@@ -22,16 +23,30 @@ title: Roland's Restaurant Reviews
    Great lunch specials!Great iced Hong Kong milk tea with sweetened condensed milk!
    Great suppers ("free" chicken when your order 3 or 4 dishes, all
    translated to English unlike many places)
-   - Vegetarian Friendliess level: low (lots of veggie side dishes)
+   - Vegetarian Friendliness level: low (lots of veggie side dishes)
 1. Thursday November 14, 2019 - Haru Korean Kitchen - Kimchi stew forever (extra kimchi, no salad #ymmv )!!!!!!!
 1. Saturday November 16, 2019 - Western Lake - Dimsum was great as usual! Matcha jello-like dessert was amazing.
    - Vegetarian Friendliness level: low
 1. Saturday November 16, 2019 - [Backcountry Brewing, Squamish](https://www.backcountrybrewing.com/) - 
 The 'Forager' was a delicious mushroom pizza. Great sour beer too!
 1. Thursday November 28, 2019 - Fat Mao - monthly mapo tofu run :-) Delicious as always and highly recommended
-1. Friday November 29, 2019 - [Sprezzatura, Kingsway, Vancouver](https://sprezzatura.ca/)  - great sable fish
+1. Friday November 29, 2019 - [Sprezzatura, Kingsway, Vancouver](https://sprezzatura.ca/)  - great sable fish; excellent pizza and mushroom lasagne
+   - Vegetarian Friendlieness level - high
 1. Saturday November 30, 2019 - [Dinesty on Gilbert, Richmond](http://dinesty.ca/our-locations/richmond-gilbert/) - great XLB (fabulous dough), shredded pork 
 was spicy and great; unusual mushroom and bamboo shoot dish was sweet and delicious!
+   - Vegetarian Friendliness level - low
+1. Sunday December 1, 2019 - [Veggie Chau, Granville Island](https://www.chowatchau.ca/) - Delicious vegetarian food! #16 diving for pearls 
+soup is highly recommended!
+1. Thursday December 5, 2019 - [Chinatown BBQ, Chinatown, Vancouver](https://chinatownbbq.com/)  
+Wow! More menu choices and tastier than previous occasions! 
+   - Vegetarian Friendliness level - low
+1. Thursday December 5, 2019 - [Linh Cafe, Kitsilano, Vancouver](http://www.linhcafe.com/)  Casual atmosphere, great conbination of
+Vietnamese and French food. Super delicious shrimp dish, bun cha, lamb gigot and salad.
+1. Sunday December 8, 2019 - [Kirin, Alberni, Downtown, Vancouver](http://www.kirinrestaurants.com/index.php5?page=downtown) 
+Surprisingly :-) affordable and delicious dim sum. I prefer waiting for Western Lake in East Van but if you must eat 
+downtown this ain't a bad option and you don't have to wait long if you have a reservation!
+1. Friday December 13, 2019 - The Boss - 
+[Haam Yu Gai Lup Chow Fan for lunch](https://www.rolandmicroblog.com/2019/12/13/haam-yu-gai.html), who could ask for anything more :-) ?!?
 
 # Restaurants I'd like to try
 
@@ -50,7 +65,8 @@ Not in order:
 
 1. Haru Korean Kitchen, Gastown, Vancouver - Kimchi stew forever (they do have what looks like decent vegetarian!)
 1. New Town Bakery, Chinatown, Vancouver - old school greasy Cantonese but I love it! B Chaan forever!
-1. The Boss, Chinatown, Vancouver - a step up from New Town, Pepper beef crispy noodles forever!
+1. The Boss, Chinatown, Vancouver - a step up from New Town, Pepper beef crispy noodles forever! 
+Haam Yu Gai Lup Chow Fan forever! Not vegetarian friendly. Cash only.
 1. Fat Mao, Chinatown, Vancouver - non "authentic" :-) but delicious mapo tofu forever!
 1. Kulinarya, The Drive, Vancouver - sinigang, kare-kare, adobo, the food of my childhood it's all here and it's delicious and
    even better they even have vegan and vegetarian food!
@@ -70,7 +86,8 @@ Not in order:
    weekend
 1. [Kissa Tanto, Chinatown Vancouver](http://www.kissatanto.com/) - super splurge, great cocktails and japanese and italian mixed together!
 1. Ken's Kitchen, Kingsway, East Vancouver
-1. [Western Lake](http://westernlake.ca/english/), Victoria, East Vancouver - dimsum!
+1. [Western Lake](http://westernlake.ca/english/), Victoria, East Vancouver - dimsum! Even with a reservation expect a wait of 15 minutes
+or more!
 1. [Manpuku Bento, Chinatown, Vancouver](https://manpukubento.com/) - Delicious Japanese Takeout; you can eat eat there but it's a bit cramped and not really
    designed for that; their daily specials are highly recommended. To minimize waste,
    I'd suggest bringing 3 bowls (1 for rice or noodles,
